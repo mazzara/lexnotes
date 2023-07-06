@@ -1,4 +1,4 @@
-# Jursiprudencia relevante em prescrição intercorrente
+# Jursiprudência relevante em prescrição intercorrente
 
 A prescrição intercorrente se refere à extinção do direito de ação devido à inércia do credor durante a execução judicial. Existem algumas doutrinas e jurisprudências significativas: a prescrição intercorrente se refere à extinção do direito de ação devido à inércia do credor durante a execução judicial. Existem algumas doutrinas e jurisprudências significativas:
 
