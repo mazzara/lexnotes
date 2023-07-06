@@ -1,6 +1,6 @@
 # Jursiprudencia relevante em prescrição intercorrente
 
-A prescrição intercorrente se refere à extinção do direito de ação devido à inércia do credor durante a execução judicial. Existem algumas doutrinas e jurisprudências significativas:a prescrição intercorrente se refere à extinção do direito de ação devido à inércia do credor durante a execução judicial. Existem algumas doutrinas e jurisprudências significativas:
+A prescrição intercorrente se refere à extinção do direito de ação devido à inércia do credor durante a execução judicial. Existem algumas doutrinas e jurisprudências significativas: a prescrição intercorrente se refere à extinção do direito de ação devido à inércia do credor durante a execução judicial. Existem algumas doutrinas e jurisprudências significativas:
 
 > Súmula 314. Em execução fiscal, não localizados bens penhoráveis, suspende-se o processo por um ano, findo o qual se inicia o prazo da prescrição qüinqüenal intercorrente. [STJ Súmula 314](chrome-extension://efaidnbmnnnibpcajpcglclefindmkaj/https://www.stj.jus.br/docs_internet/revista/eletronica/stj-revista-sumulas-2011_25_capSumula314.pdf)
 
